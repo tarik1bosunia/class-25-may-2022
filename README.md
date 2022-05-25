@@ -4,3 +4,7 @@
 
 
 # haha I Now I am writting heading 3
+
+Gone camping! :tent: Be back soon.
+
+That is so funny! :joy:
